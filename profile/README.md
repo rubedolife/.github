@@ -10,7 +10,7 @@ Our proprietary **ALEMBIC™** AI-driven drug discovery platform is based on a s
 ## Contact
 
 For inquiries or requests, please visit:  
-🔗 [https://www.rubedolife.com/](https://www.rubedolife.com)
+🔗 [www.rubedolife.com](https://www.rubedolife.com/)
 
 © Rubedo Life Sciences, Inc.  
 All rights reserved.
